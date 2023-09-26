@@ -1,1 +1,1 @@
-French baguette learning how to code a little bit
+i'm litterally steve jobs
